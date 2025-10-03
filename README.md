@@ -1,1 +1,3 @@
 # do-now-markdown-practice
+# My Favorite Memory at MESA
+My favorite memory at MESA was **yesterday** when I played basketball in **P.E.**. This was the memory I chose because I played with my *friend*, Max. It was fun and joyful since I improved my handles and shooting. For example, I improved my shooting because Max taught me a new shooting form. This made me shoot more *accurate* shots because I had better aim, and used less power.
